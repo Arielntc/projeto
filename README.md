@@ -1,0 +1,1 @@
+primeiro código está ruim ainda mas vou melhorar
