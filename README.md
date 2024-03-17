@@ -1,1 +1,1 @@
-primeiro código está ruim ainda mas vou melhorar
+primeiro código está ruim ainda.
